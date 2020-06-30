@@ -8,3 +8,9 @@ In Juban, Tokyo, a middle-school student named Usagi Tsukino befriends Luna, a t
 * always notices the good and beautiful aspects in other people
 * very clumsy 
 * has a very specific hairstyle, which earned her the nickname 'Dumpling Headd' by Mamoru 
+
+
+Sailor Moons catchphrase at the end of every fight:
+> In the name of the Moon, I'll punish you!
+> I am the Pretty Guardian who fights for love and Justice! 
+> I am Sailor Moon!
