@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# Tsukino Usagi a.k.a Sailor Moon - Guardian of love and justice 
