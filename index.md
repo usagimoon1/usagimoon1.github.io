@@ -1,1 +1,1 @@
-#1 Tsukino Usagi a.k.a Sailor Moon - Guardian of love and justice 
+# Tsukino Usagi a.k.a Sailor Moon - Guardian of love and justice 
