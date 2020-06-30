@@ -14,3 +14,6 @@ Sailor Moons catchphrase at the end of every fight:
 > In the name of the Moon, I'll punish you!
 > I am the Pretty Guardian who fights for love and Justice! 
 > I am Sailor Moon!
+
+
+<img src="https://static.tvtropes.org/pmwiki/pub/images/The_Name_Of_The_Moon_colorfix_5744.png"/>
